@@ -1,2 +1,3 @@
-https://media1.tenor.com/m/uadiCaRqNj0AAAAd/bot-ii-bot.gif![image](https://github.com/user-attachments/assets/6bf227b3-2be7-4b5b-9bad-f4db1e4c7354)
+![625BC72C-BF2C-45EF-8398-E93BE17A3C71](https://github.com/user-attachments/assets/fb87250c-2bb8-421c-84c4-ddaa7306c365)
+
 
